@@ -1,0 +1,3 @@
+- 👋 Olá eu sou a Jaqueline-RC
+- 👀 18
+- 📫 email de contato cristo.jaqueline@escola.pr.gov.br
